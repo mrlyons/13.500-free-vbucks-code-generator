@@ -2,7 +2,7 @@
 
 Are you ready to elevate your Fortnite gaming experience? Imagine diving into the battlefield with 13,500 free V-Bucks at your disposal! Yes, you read that right. Today, we're sharing an incredible opportunity for you to claim these V-Bucks through our exclusive code generator. But that’s not all; we’ll also cover the ins and outs of V-Bucks, answer your most pressing questions, and provide a comprehensive guide to maximizing your in-game purchases. Let’s get started!
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## What Are V-Bucks?
 
